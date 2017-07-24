@@ -1,1 +1,1 @@
-# Hello-World-
+Hello! My name is Kevin and I'm an aspiring developer. I'm looking for a career change in a field I've always loved. Some of my hobbies include travel, video games, and writing. On a final note, let's all strive to acheive the dream of making the world greater than it is.
